@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rehan Mughal
-**A passionate AI beginner || student of ai |
+**A passionate AI beginner of PAK AUSTRIA UNIVERSITY || student of BSAI |
 
 Email Me 👉 ✉️ **mrhanii048@gmail.com** ForProject or Anything Else. 😊😊
 

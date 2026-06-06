@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **mrhanii048@gmail.com** ForProject or Anything Else. 😊�
 - 🤔 **I’m looking for help with:** ANYONE WORK WITH ME
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** 03497139086 via whatsapp
-- 😄 **Pronouns:** Rehan Mughal
+- 😄 **Pronouns:** Hanii
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/hanii__pvt_) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/rehan-mughal-22598338b) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/@mrhanii048) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@rehan_mughalzz_18) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/@rehanzz18) [![Mastodon](https://img.shields.io/badge/-MASTODON-%232B90D9?logo=mastodon&logoColor=white)](https://mastodon.social/@Rehan Mughal) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:mrhanii048@gmail.com) 
